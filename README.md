@@ -1,0 +1,1 @@
+# mirzo_usto_qoparjon
